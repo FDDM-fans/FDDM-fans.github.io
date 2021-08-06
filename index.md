@@ -1,4 +1,2 @@
 # 嘻嘻~
-
-![image](https://github.com/mmmmmmmmmmq/mwq.github.io/blob/gh-pages/MWQ.png)
-
+![fuV6KA.jpg](https://z3.ax1x.com/2021/08/06/fuV6KA.jpg)](https://imgtu.com/i/fuV6KA)
