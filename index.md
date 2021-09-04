@@ -1,7 +1,7 @@
 
 # ❤ ᶫᵒᵛᵉᵧₒᵤ
 
-## 一些珍藏的照片
+## <center>一些珍藏的照片</center>
 
 ![h2IkQK.jpg](https://z3.ax1x.com/2021/09/04/h2IkQK.jpg)
 
