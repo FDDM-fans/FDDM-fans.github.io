@@ -12,6 +12,8 @@
 
 ![fzlXYF.jpg](https://z3.ax1x.com/2021/08/21/fzlXYF.jpg)
 
+## <center>从来不想只做好朋友，这次我来当一个信徒</center>
+
 <video id="video" controls="" preload="none" poster="http://mwq-716820.github.io/QQ视频_4623f05e434460ccaad469254e7f43ef1626528540.jpg">
       <source id="mp4" src="http://mwq-716820.github.io/QQ视频_4623f05e434460ccaad469254e7f43ef1626528540.mp4" type="video/mp4">
       </video>
